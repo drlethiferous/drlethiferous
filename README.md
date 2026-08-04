@@ -12,8 +12,9 @@
 
 .
 
-[@TIMDRAKKED]() as the FAG LER of **FAGTOWN**
+[@TIMDRAKED](https://github.com/timdraked) as the FAG LER of **FAGTOWN**
 
+.
 follow main + sign ata!
 
 </div></sub>
